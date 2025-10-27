@@ -29,7 +29,7 @@ I enjoy turning ideas into working prototypes — from **smart home automation s
 ---
 
 ### ⚡ Fun Facts
-- I love **gym workouts** 💪  
+- I love **gym workouts**💪 & **Chess** 
 - I enjoy giving my projects cool UIs that feel professional ✨  
 - Always experimenting with **new tech ideas** — no project is too small to start!  
 
